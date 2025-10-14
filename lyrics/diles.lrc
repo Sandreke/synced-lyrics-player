@@ -1,0 +1,115 @@
+[id: ahcxtsno]
+[ar: Bad Bunny]
+[al: Diles]
+[ti: Diles]
+[length: 04:46]
+
+[00:07.86]Prende otro phillie, bebé
+[00:16.14]Prende otro phillie, bebé
+[00:18.46]Que ya mismo este se apaga (ey, ya)
+[00:20.62]Vamos para el cuarto polvo
+[00:22.85]Ya esto es una saga
+[00:24.75]Dice que le gusta hacerlo con mis temas de trap (oh, yeah)
+[00:28.88]Y si te preguntan porque pa'l sexo
+[00:31.48]Yo soy tu fav
+[00:32.57]Diles
+[00:33.98]Que yo me sé tu' pose' favoritas
+[00:38.06]Que te hablo malo y que eso te excita
+[00:41.92]Que te hago todo lo que necesitas
+[00:45.81]Pa' hacerte venir
+[00:48.35]Y dile'
+[00:50.25]Que yo me sé tu pose favorita
+[00:54.49]Que te hablo malo y que eso te excita
+[00:58.06]Que te hago todo lo que necesita'
+[01:02.40]Pa' hacerte venir
+[01:04.53]Farru
+[01:05.09]Dile que soy el baby
+[01:06.74]Tu novio viste de Old Navy
+[01:08.48]Yo sí tengo flow, él no tiene flow
+[01:10.96]Yo a ti te martillo y te doy dembow
+[01:13.14]Por la noche cuando él se va
+[01:14.77]Tú me llamas con la necesidad
+[01:16.97]Porque te gusta cómo te doy
+[01:18.76]Tranquila ma, que por ahí voy ya
+[01:21.27]Uh-uh-uh
+[01:23.06]Quiero hacerte cositas que nunca te han hecho
+[01:26.96]Esta noche conmigo tú tocas el techo (uh-uh-uh)
+[01:30.86]Cuando te pelean y estás en despecho
+[01:34.63]Me llamas y yo adentro te la echo
+[01:37.49]Dime si tu quieres
+[01:38.84]Que yo te ubique en mi cama
+[01:41.25]Deja el drama
+[01:42.44]Ven y mama
+[01:43.58]Voy a darte duro hasta por la mañana
+[01:45.43]Y que comience la acción
+[01:48.22]Dame tu ubicación
+[01:49.75]Ey, tú sabes que yo le llego y cuando llego
+[01:51.80]Este bicho causa emoción
+[01:53.58]Le bajo el pozo como Poseidón
+[01:55.58]Y le abro las piernas en el balcón
+[01:57.73]Pa' hablarte claro, ma, tú le metes cabrón
+[01:59.43]Me gusta como con la boca me pone' el condón
+[02:02.22]Y te queda mejor, mamá
+[02:03.81]Cuando no me pones na'
+[02:05.89]Este bicho es tuyo
+[02:06.61]Avanza y corre
+[02:07.93]Ven y súbete en la torre
+[02:10.07]Diles
+[02:11.46]Que yo me sé tu' pose' favoritas
+[02:16.03]Que te hablo malo y que eso te excita
+[02:19.42]Que te hago todo lo que necesitas
+[02:23.58]Pa' hacerte venir
+[02:25.59]Y dile'
+[02:28.10]Que yo me sé tu pose favorita
+[02:32.44]Que te hablo malo y que eso te excita
+[02:36.36]Que te hago todo lo que necesita'
+[02:40.36]Pa' hacerte venir
+[02:41.80]Conozco tu' pose', hago susurrar todas tu' voce'
+[02:46.22]Por mi cuello
+[02:47.38]Se ilumina el camino cuando estrello
+[02:50.49]Tu cuerpo junto al mío
+[02:52.66]Haciendo detener el tiempo
+[02:55.93]Este es el mejor momento
+[02:58.93]Pose' abajo, arriba
+[03:00.35]Pose' en cuatro, encima o de la'o
+[03:02.28]Caliente caliente
+[03:03.35]Dime que tú sientes si te doy de frente
+[03:05.30]Se siente apreta'o
+[03:07.19]Tu culo pégalo cerca
+[03:09.43]Pa' retumbarte completa
+[03:11.97]Baja y sube en cámara lenta, mai (Bad Bunny)
+[03:15.61]Vamo' hacerlo adentro del carro y pichea el hotel
+[03:19.48]Que tengo ganas, bebé, y no hay tiempo para perder
+[03:22.58]Cristales tintia'os, nadie nos va a ver
+[03:24.72]Estamo' bellaco y queremo' meter
+[03:26.68]Tú y yo solitos, dale apaga el cel
+[03:28.70]Que te vo' a hacer lo que no te hace él
+[03:31.06]Y woh, ja
+[03:33.05]Los cristales del carro se empañan
+[03:35.05]Tu carita de ángel me engaña
+[03:37.07]Yo soy sano pero tú me dañas
+[03:39.27]Y woh (woh)
+[03:41.15]Prende un cripi y se puso lucía
+[03:43.08]Me dio un blowjob mientras conducía
+[03:45.07]Se trepó y me seducía
+[03:47.38]Y dile'
+[03:49.23]Que yo me sé tu pose favorita
+[03:53.34]Que te hablo malo y que eso te excita
+[03:57.28]Que te hago todo lo que necesitas
+[04:01.66]Pa' hacerte venir (Farru)
+[04:03.22]Y diles
+[04:05.18]Que yo me sé tu' pose' favoritas
+[04:09.93]Que te hablo malo y que eso te excita
+[04:13.57]Que te hago todo lo que necesita'
+[04:17.61]Pa' hacerte venir
+[04:19.98]Bad Bunny (Bad Bunny)
+[04:21.54]Hear this music (hear this music)
+[04:24.57]Mambo Kingz (Mambo Kingz)
+[04:27.16]Dj Luian (Luian)
+[04:30.21]Farru
+[04:31.39]Ozuna
+[04:33.63]Ñengo Flow
+[04:34.62]Arcángel (El género punto com)
+[04:37.38]Ey, yes, tía, sí soy en setiembre
+[04:38.73]Nos vemo' en el talpón, liceo, Farru
+[04:42.04]
